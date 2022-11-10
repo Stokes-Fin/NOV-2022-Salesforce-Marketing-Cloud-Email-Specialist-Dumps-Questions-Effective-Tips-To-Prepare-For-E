@@ -1,0 +1,1 @@
+# NOV-2022-Salesforce-Marketing-Cloud-Email-Specialist-Dumps-Questions-Effective-Tips-To-Prepare-For-E
